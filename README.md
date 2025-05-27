@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Satyam Guta
-- 👀 I’m currently pursuing engineering 
+- 👀 I’m pursuing engineering 
 - 🌱 I’m currently learning C and java 
 - 📫 How to reach me , my gmail - gsatyam2406@gmail.com
 - 😄 Pronouns: he/him
